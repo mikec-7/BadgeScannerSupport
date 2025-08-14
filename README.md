@@ -5,7 +5,7 @@ Support page for Badge Scanner App
 
 If you're having trouble with Badge Scanner App, please reach out to us.
 
-Email: mcallaha7@gmail.com
+Email: superbadgescanner@gmail.com
 
 ---
 
